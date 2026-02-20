@@ -1,1 +1,0 @@
-# vipermarket.github.io
